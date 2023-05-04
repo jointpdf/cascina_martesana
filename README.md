@@ -10,4 +10,4 @@ Se non conosci il posto puoi trovare qualche info a questo link: https://www.cas
 
 Abbiamo l'uso griglia in autogestione: porta pure quello che hai in casa che possa prevedere cottura su griglia, io prenderò una buona base di carne per tutti e un'alternativa veggie super guzza.
 
-Potrai comprare da bere al bar della Cascina, l'alcol da fuori non è ben visto (sai già cosa fare).
+Potrai comprare da bere al bar della Cascina, l'alcol da fuori non è ben visto.

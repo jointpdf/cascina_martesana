@@ -4,7 +4,7 @@
 # Invito
 
 Amico, questa sera a mezzanotte sarà il mio compleanno.
-Se hai piacere di passare insieme questo momento per me così speciale CI TROVIAMO PER LE 20 A CASCINA MARTESANA (https://maps.app.goo.gl/ZVn5HNJnG1uWQSZK6)
+Se hai piacere di passare insieme questo momento per me così speciale CI TROVIAMO PER LE 20 A CASCINA MARTESANA (maps: https://maps.app.goo.gl/ZVn5HNJnG1uWQSZK6).
 # Info Pack
 Se non conosci il posto puoi trovare qualche info a questo link: https://www.cascinamartesana.com/
 
